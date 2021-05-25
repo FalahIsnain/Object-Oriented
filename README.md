@@ -1,3 +1,3 @@
 # Object-Oriented
-tekan browse code/view code
+jangan di copy ya, ketik ulang saja
 
